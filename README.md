@@ -1,1 +1,1 @@
-# IonFormulaCompeyition
+# IonFormulaCompetition
